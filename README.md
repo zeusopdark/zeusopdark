@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **ankitnishad400@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1g2SL45nJb8ZcE_GUZl26kKmfRFDUcU7q/view?usp=sharing](https://drive.google.com/file/d/1g2SL45nJb8ZcE_GUZl26kKmfRFDUcU7q/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1g2SL45nJb8ZcE_GUZl26kKmfRFDUcU7q/view?usp=sharing](https://drive.google.com/file/d/1QJQoqgiTXGODWdicmXsqkIqID7gXnP2v/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
